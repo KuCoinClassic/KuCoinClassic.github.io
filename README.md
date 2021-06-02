@@ -1,2 +1,0 @@
-# cOSINT.github.io
- 
